@@ -1,3 +1,3 @@
 - Nama : Ilma Nur Rohmah
 - Jurusan : SITH-R - TPB
-- Alasan ingin masuk GDSC : ingin berada dalam lingkungan komunitas di bidang seputar IT/device developer sebagai tempat untuk belajar dan bertanya terkait bidang tersebut.
+- Alasan ingin masuk GDSC : memiliki ketertarikan dan tekad untuk belajar ilmu di bidang seputar IT/device developer sehingga bergabung menjadi bagian dari GDSC adalah salah satu cara untuk membuatnya jd nyata
